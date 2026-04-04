@@ -1,1 +1,8 @@
-[![Review Assignment Due Date](https://classroom.github.com/assets/deadline-readme-button-22041afd0340ce965d47ae6ef1cefeee28c7c493a6346c4f15d667ab976d596c.svg)](https://classroom.github.com/a/b3l8vQxo)
+    ### Presentación
+ 
+    Hola, soy Bruno Zapana, desde que soy un nene juego a los jueguitos y a la pelota, 2 cosas que las sigo haciendo hasta el día de hoy y probablemente siga haciendo por un tiempo porque las disfruto mucho! Mi legajo es: 233.227-9.
+
+   
+
+
+    ![fotito]()
